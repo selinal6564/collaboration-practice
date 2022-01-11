@@ -6,7 +6,6 @@
 #### 6
 #### 7 Selina was here!
 #### 8
-
 #### 9 Github is really awesome.
 #### 10
 #### 11
